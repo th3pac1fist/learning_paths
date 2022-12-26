@@ -2,7 +2,7 @@
 
 User Exerience >>
 
-[Free User Experience Design Courses and Tutorials](https://www.udemy.com/topic/user-experience-design/free/))
+[Free User Experience Design Courses and Tutorials](https://www.udemy.com/topic/user-experience-design/free/)
 
 Google UX Design Professional Certificate: https://www.coursera.org/professional-certificates/google-ux-design?utm_source=gg&utm_medium=sem&utm_campaign=15-GoogleUXDesign-US&utm_content=B2C&campaignid=12512630840&adgroupid=118346521919&device=c&keyword=how%20to%20become%20a%20ux%20designer&matchtype=b&network=g&devicemodel=&adpostion=&creativeid=504987658726&hide_mobile_promo
 
